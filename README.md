@@ -1,5 +1,3 @@
-Abbruch!!!
-Noch ein Abbruch
-Das hier
-ist
-echt witzig :)
+Ihr könnt mich
+alle mal am Arsch
+lecken :)
